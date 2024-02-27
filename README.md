@@ -23,7 +23,7 @@ Wgetcloud机场套餐定价灵活，从月付39元到69元均可支持流媒体�
 ## Wgetcloud机场测速(晚高峰)
 [![image-15.webp](https://s2.loli.net/2024/02/19/W7I5crQb3M1Vujg.webp))](https://go.51tz.cc/wget)
 
-## Wgetcloud跑路了吗-Wgetcloud官网备用地址
+## Wgetcloud跑路了吗-机场网站打不开-Wgetcloud官网备用地址
 Wgetcloud机场是运营多年的大型高端机场，跑路风险非常小。
 有时候Wgetcloud机场官网打不开，是因为长城防火墙持续的侦测屏蔽，不要担心。
 你可以打开翻墙梯子登录官网，或者通过下面的Wgetcloud机场备用地址进入。
