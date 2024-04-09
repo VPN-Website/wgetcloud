@@ -1,4 +1,4 @@
-# Wgetcloud机场地址丨折扣优惠丨实时更新
+# Wgetcloud机场地址丨折扣优惠
 Wgetcloud机场（原名GaCloud），又被称为Wgetcloud加速，运营多年，备受推崇，是能够提供稳定优质节点的高性价比翻墙机场。拥有一键式客户端，并且支持SS/SSR/V2Ray/Trojan等全协议，采用多线BGP隧道中转和亚马逊Global Accelerator专线，提供高速稳定的国际网络，满足娱乐、学习、商务外贸等所有科学上网场景需求。
 
 ## Wgetcloud官网
